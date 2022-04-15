@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rainbow-H
+- 👀 I’m interested in drawing
+- 🌱 I’m currently learning aotumation
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me （guess）
